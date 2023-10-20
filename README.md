@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @3ner9y
-- 👀 I’m interested in computers, boxing and parkour.
+- 👀 I’m interested in computers, kickboxing and parkour.
 - 🌱 I’m currently learning computer basics and diferent programs tools.
 - 💞️ I’m curently learning the basics of an "programmer"
 - 📫 if ya want to talk send me an gmail at 3ner9y.Hz@gmail.com 
